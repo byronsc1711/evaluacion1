@@ -7,8 +7,8 @@ Aumento de información en estos archivos de Remplazo realizada
 La diana era una mujer bien culona pero si hubiera tenido el poder de controlas a las nalgonas le hubiera metido 
 hasta el fondo.
 
-Datos de Remplazo del Centro de documentaciónes de Guarandoslivia rasislami
+Datos de Remplazo del Centro de documentaciónes de pañalero rasislami
 de los tatarabisniatos bien chillastianes.
 ingreso de nueva linea.
-Datos de Remplazo del centro de documentación de Guarandoslivia rasislami
+Datos de Remplazo del centro de documentación de pañalero rasislami
 Creqacion y cambios realizados en este documento de Remplazo guarandoslivica de rasislami con los bisniotos pañaleros inquiotos.

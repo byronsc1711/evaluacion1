@@ -4,6 +4,9 @@ Los culonas son bien Vecinostianes. Vecinos
 
 Aumento de información en estos archivos de Remplazo realizada
 
+La diana era una mujer bien culona pero si hubiera tenido el poder de controlas a las nalgonas le hubiera metido 
+hasta el fondo.
+
 Datos de Remplazo del Centro de documentaciónes de Guarandoslivia rasislami
 de los tatarabisniatos bien chillastianes.
 ingreso de nueva linea.
